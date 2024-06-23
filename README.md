@@ -1,0 +1,1 @@
+Unfortunately, I had to choose another dataset for this week because my original dataset was not very fitting for this type of activity. I can continue using my original dataset in the future assignment, if needed, but I did not like the outcome for this assignment. 
